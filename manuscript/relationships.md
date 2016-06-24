@@ -2,18 +2,22 @@
 
 ## Self
 
-## Family
+## Spouse
+
+## Children
+
+## Parents
 
 ## Friends
 
-## Community
+## Enemies
 
-## State
+## Acquaintances
 
-## Species
+## Boss
 
-## Animals
+## Co-workers
 
-## Life
+## Neighbors
 
-## Universe
+## Strangers
