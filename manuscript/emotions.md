@@ -2,16 +2,14 @@
 
 Here we detail some thoughts on the emotions we may find ourselves in and how we might best be able to deal with them 
 
-## Joy, Wonder
+# Joy, Wonder
 
 These are great to have.
 
-## Anger, Hatred
+# Anger, Hatred
 
-## Fear, Uncertainty
+# Fear, Uncertainty
 
-## Love, Compassion
+# Love, Compassion
 
-## Courage, Support
-
-
+# Courage, Support
