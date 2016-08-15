@@ -20,6 +20,10 @@ The ecological crisis he asserts is a spiritual crisis. As technology has grown,
 
 Notice how the above is framed in dualistic terms. It is hard not to. In the end, there is but one dancer, but it takes many forms of the dance. 
 
+Structural dukkha is a core issue to tackle. Greed is exemplified by the capitalist system (corporate, consumerism, stocks), aggression is the state, media is the delusion. It is a system built on our dukkha, magnified and out of control. 
+
+He asserts that we have a sense of lack that comes from our little self, feeling insecure for it has no grounding. The only way is to let go, to let the bottom of the bucket fall open. How does a sense of lack relate to the structural? 
+
 The book is full of other information as well. It is quite dense but also very good. The main call of the book is to begin a notion of being using Buddhism that focuses on the here and now, but not materially as the West does. Use the idea of losing the self to inform compassionate, just actions that help our universe thrive with us in it. 
 
 It is hard to say it is a call to arms. It is rather a call to peace, of acceptance of the needs and good nature of us all, of the one, of the empty that is all. 
